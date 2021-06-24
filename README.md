@@ -1,1 +1,0 @@
-# semparudhi.github.io
